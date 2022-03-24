@@ -1,0 +1,1 @@
+# Algorytm-obliczania-NWW-oraz-NWD
